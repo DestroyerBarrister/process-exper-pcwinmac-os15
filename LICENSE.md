@@ -1,4 +1,4 @@
-# 
+# Professionnel Process Explorer flux de travail pour Mac OS | Top Process Explorer flux de travail pour PC Windows. Avec organisation du bureau et aperçu rapide — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
